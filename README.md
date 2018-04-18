@@ -1,3 +1,0 @@
-# xuexi
-yongrgreqoroeqgreo
-ewerqfrtrerq
